@@ -1,5 +1,5 @@
-## Bio Alemas/João Calheiros
-# Sou um Estudate do ensino medio, cursando SENAI no Cepi Osvaldo.
+# Bio de Alemas/João Calheiros
+## Sou um Estudate do ensino medio, cursando SENAI no Cepi Osvaldo.
 
 <!--
 **Alemas156/Alemas156** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
