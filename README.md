@@ -1,5 +1,7 @@
 # Bio de Alemas/João Calheiros
 ## ⛩️⚔ Sou um Estudate do ensino medio, cursando SENAI no Cepi Osvaldo. Quero ser um programador para criar jogos e sites ⚔⛩️
+
+https://slackmojis.com/emojis/80272-bleach-susq/download
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
